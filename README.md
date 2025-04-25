@@ -6,7 +6,7 @@ Hey there! I'm CoreWebb— a curious mind exploring the worlds of tech, creativi
 
 ## 🧠 What I'm Working On
 
-- Starting a dropshipping brand and a web dev team  
+  
 - Getting into freelancing, marketing, and design  
 - Learning every day and stacking skills
 
